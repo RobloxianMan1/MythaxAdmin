@@ -3,7 +3,7 @@ Official Mythax Admin Repository.
 
 How to buy:
 
-Step 1: Join this group: https://www.roblox.com/groups/9678115/Mystikal#!/about
+Step 1: Join this group: https://www.roblox.com/groups/32038513/Mythax#!/about
 
 Step 2: Buy this shirt: https://www.roblox.com/catalog/13189356212/Mythax-Whitelist-Shirt
 
